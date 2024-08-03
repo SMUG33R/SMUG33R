@@ -9,8 +9,6 @@
 
 <h7 align=center>
 
-<img src="https://64.media.tumblr.com/74d5b01ade74e749685c83eaaab32a56/4ef21a2eb0f3635b-05/s1280x1920/219dccab3883980e1ef41fc9d761556a27d3fb55.pnj"/>
-
 
 <img src="https://64.media.tumblr.com/9379635d7aac3ceaed35e29a7a3b5bff/d9b7fba3074bdce9-38/s250x400/fcf7ed0599cf0ad5d27d7294e45e27f4a8bfdf24.gifv"/> <img src="https://64.media.tumblr.com/1570285cdbebbfb71299d163c635e1d7/72e2590fb9e2f26c-c1/s250x400/796fc1e33be0bbdec604541848acf5d1527ffb0c.gifv"/> <img src="https://64.media.tumblr.com/4da46baec3fb03ad50f7d536746ba77b/db7f482dfcc9276f-71/s250x400/37db4765cf3cc905750a9e9ae17af768e6925056.gifv"/> <img src="https://64.media.tumblr.com/84cb1a70419038cdba0db7c0df0ac1a0/ec87ffc013e65979-04/s250x400/46ddf64c4bbcad168244c4707965188bb893e549.gifv"/> <img src="https://64.media.tumblr.com/d75c8fba1f98d18ed838f707f42de0ab/6c324b508344ad28-06/s250x400/f1c89426af6f454ba9738dab75d325f0dcbe97d1.gifv"/> <img src="https://64.media.tumblr.com/321b9bdcf7413f2def58c6da6d742515/d9b7fba3074bdce9-b7/s250x400/15cebe318af1fe29efec5917e67506d6fedca0e8.gifv"/> <img src="https://64.media.tumblr.com/f20f82ec9f6fe1c1f83d8b78081520c9/aafe72991d4ddd59-6a/s250x400/b65b4d3f204c8a1f8d24b04aa7c9dedb0e2a2861.gifv"/> <img src="https://64.media.tumblr.com/fbcbf77de4ea4c2bf202c06a9815ee22/9152433f2cc5108a-b8/s250x400/c06d57f7ccf03504eacaa2557d399869e80477ed.gifv"/> <img src="https://64.media.tumblr.com/116c6f4a72e772f0bf0d395ab6a4d57b/72e2590fb9e2f26c-87/s250x400/87159f6bcd4f406807436987e8b4c075f67c1b4c.gifv"/> <img src="https://64.media.tumblr.com/f9d72c0a4ad24291381ecb585c114621/72e2590fb9e2f26c-c8/s250x400/eacd1b32652782ca3818a6e86e24508868cec87c.gifv"/>
 
