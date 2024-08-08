@@ -3,7 +3,7 @@
 
 
 
-[spacehey](https://spacehey.com/profile?id=2038589)　　　 [steam](https://steamcommunity.com/profiles/76561199202034198/)
+[spacehey](https://spacehey.com/profile?id=2038589)　　　 [last.fm](https://www.last.fm/user/SMUG33R)　　　 [spotify](https://open.spotify.com/user/8jaqxgiu5nqlzd7h8za7sqhya?si=3ec7a943db184e8a&nd=1&dlsi=2c2776d2fb3f487b)　　　 [steam](https://steamcommunity.com/profiles/76561199202034198/)
 
 ***
 
